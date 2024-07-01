@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **syedshahzainhussain001@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I think I am Lonely**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
